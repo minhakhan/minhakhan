@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @minhakhan
+- 👀 I’m interested in writing blogs
+- 🌱 I’m currently learning in MBA
+- 💞️ I’m looking to collaborate on my website
+- 📫 How to reach me on my email ( minhak29@gmail.com )
